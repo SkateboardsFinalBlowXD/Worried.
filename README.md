@@ -5,3 +5,4 @@ update again sword did say that if their escaping they might not see us for a wh
 update maybe swords just sleeping and ment gtg :D but anyways yall imma go tho ill update u soon or tmr about sword cya
 update swords alive just their power went off!!!
 update am making a mc arg and swords okay but got another bomb alert sighs
+update iran lied about war stopping swords ok rho
