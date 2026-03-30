@@ -6,3 +6,4 @@ update maybe swords just sleeping and ment gtg :D but anyways yall imma go tho i
 update swords alive just their power went off!!!
 update am making a mc arg and swords okay but got another bomb alert sighs
 update iran lied about war stopping swords ok rho
+ita swords bday hi
